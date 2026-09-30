@@ -4,3 +4,5 @@ Mi nombre es Solange Iñiguez
 Mi nombre es Alexandra Silva
 Tarea de la actividad 1 a realizar 
 Archivo grupal nuevo
+Nombres completos
+Tarea de la actividad 1 a realizar 
